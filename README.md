@@ -40,6 +40,6 @@ A professional website built for a gym client to improve online presence and cus
 
 ## Connect With Me
 
-LinkedIn: [Add Link]
+LinkedIn: [www.linkedin.com/in/aryan-singh-7b99123aa]
 Email: [aryanworkspace5@gmail.com](mailto:aryanworkspace5@gmail.com)
 
